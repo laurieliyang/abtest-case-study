@@ -1,0 +1,1 @@
+> https://www.abtasty.com/resources/shiseido-customer-story/

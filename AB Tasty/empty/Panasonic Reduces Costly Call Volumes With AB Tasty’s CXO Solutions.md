@@ -1,0 +1,1 @@
+> https://www.abtasty.com/resources/panasonic-reduces-call-volumes/
