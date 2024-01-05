@@ -1,0 +1,1 @@
+> https://www.amplitude.com/case-studies/how-personalization-helped-g-loot-improve-its-player-experience

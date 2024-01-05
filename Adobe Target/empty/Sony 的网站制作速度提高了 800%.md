@@ -1,0 +1,1 @@
+> https://business.adobe.com/cn/customer-success-stories/sony-interactive-entertainment-case-study.html

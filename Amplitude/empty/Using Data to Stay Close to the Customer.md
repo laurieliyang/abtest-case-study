@@ -1,0 +1,1 @@
+> https://www.amplitude.com/case-studies/quillbot
